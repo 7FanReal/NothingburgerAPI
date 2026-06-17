@@ -1,1 +1,1 @@
-DISCORD STATUS IMAGES OR SOMETHIGN
+Will explain later when i feel like it
